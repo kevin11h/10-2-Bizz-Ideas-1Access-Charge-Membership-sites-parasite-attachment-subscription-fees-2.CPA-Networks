@@ -3,6 +3,8 @@ https://www.youtube.com/watch?v=TWmbL9TGqBg
 
 # Skills Pay the Bills
 
+# CPA Networks
+
 # 6. Equity Partnerships
 
 # 7. Earn From Home
